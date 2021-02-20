@@ -23,7 +23,7 @@ dX.    9Xb      .dXb    __                         __    dXb.     dXP     .Xb
 <p align="center">  
 </p>
 <p align="center"> 
-    <a href="https://discord.gg/vmV8ABh3HE">society</a>
+    <a href="https://discord.gg/grdetfhgye">society</a>
     ﹒
     ﹒
     ﹒
